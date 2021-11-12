@@ -1,1 +1,6 @@
 # Prognosis-Laboratories
+Aarogyalabs provide multiple test laboratories for full body checkups. It provides smooth and quick booking for tests. It also provides a doorstep facility for unhealthy patients. There are many laboratories for tests and our most reliable and cost-effective laboratory.
+Prognosis Laboratories is the Centre for Excellence in Medical Diagnostics. We are an integrated diagnostic laboratory offering unparalleled quality in clinical diagnostics with unparalleled personal attention to customer care.
+We provide a wide range of personalized diagnostic procedures and tests to meet the needs of a rapidly expanding health care industry. Prognosis Laboratories is a Center for Excellence in Medical Diagnostics committed to revolutionizing cancer patient diagnostics by offering simple, easy to administer blood tests that can be used for early detection.
+The Centre is a state-of-the-art research, laboratory, and patient management facility. Its mission is to lead the field of medical diagnostics into the future, prioritizing excellence in scientific investigation and understanding.
+Prognosis is a pioneer in the creation of cutting-edge medical diagnostic products. Our team works to create innovative solutions to address current and growing healthcare challenges.**Visit https://aarogyalab.com/prognosis-labs**
